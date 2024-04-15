@@ -1,5 +1,5 @@
 # เป็นProject ของค่าย 2B Explore KMUTT
-Link [Facebook] (https://www.facebook.com/2BKMUTT.Xplore)
+Link [Facebook](https://www.facebook.com/2BKMUTT.Xplore)
 ---
 > background
 เราเป็นคนที่จะมีความรู้พอสมควรเเละพยายามที่จะทำผลงานออกมาได้ดีที่สุด โดยจะทำproject เเละ ปรึกษากับอาจารย์ที่ปรึกษา เเละจะมีรางวัล outstanding awardสำหรับรางวัลที่โดดเด่น
